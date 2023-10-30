@@ -1,0 +1,2 @@
+# bahteratulus
+buat ptulus
